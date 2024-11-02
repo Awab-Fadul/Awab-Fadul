@@ -2,8 +2,8 @@
 - 👀 I’m interested in fortnite
 - 🌱 I’m currently learning about CS
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach shine the bat signal (Email me pleasaseee ludafbawa@gmail.com)
-- 😄 Pronouns: (He/Him)
+- 📫 How to reach me shine the bat signal (Email me pleasaseee ludafbawa@gmail.com)
+- 😄 Pronouns: (Bat/man)
 - ⚡ Fun fact: I am secretely batman
 
 <!---
